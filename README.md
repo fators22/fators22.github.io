@@ -1,1 +1,0 @@
-# fators22.github.io
